@@ -1,4 +1,4 @@
-![megumin](https://imgur.com/DoKyZJ0)
+![megumin](https://imgur.com/KXYlpPK)
 ## Hi there, fat~desu （＾－＾✿）
 - a lazy coder, maybe?
 
