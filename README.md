@@ -1,4 +1,4 @@
-![random shit](https://i.imgur.com/g63bqGH.jpg)
+![random shit](https://imgur.com/vEJpfff)
 ## Hi there, fat~desu （＾－＾✿）
 - a lazy coder, maybe?
 
