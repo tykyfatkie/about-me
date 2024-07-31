@@ -1,4 +1,4 @@
-![megumin](https://imgur.com/sTlV3qA.jpg)
+![megumin](https://imgur.com/vEJpfff.gif)
 ## Hi there, fat~desu （＾－＾✿）
 - a lazy coder, maybe?
 - Megumin > you.
